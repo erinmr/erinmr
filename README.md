@@ -6,5 +6,6 @@ Here are a few bits about me:
 - 💬 Ask me about community building
 - 📫 How to reach me: erin@metadatagamechangers.com
 - 😄 Pronouns: she/her
-- 🌎 Website: http://erinrobinson.info/ 
+- 🌎 Personal Website: https://erinrobinson.info/
+- 🌎 Work Website: https://metadatagamechangers.com/ 
 
