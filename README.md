@@ -7,5 +7,5 @@ Here are a few bits about me:
 - 📫 How to reach me: erin@metadatagamechangers.com
 - 😄 Pronouns: she/her
 - 🌎 Personal Website: https://erinrobinson.info/
-- 🌎 Work Website: https://metadatagamechangers.com/ 
-
+- 🌎 Work Website: https://metadatagamechangers.com/
+- 🤓 Check out my doctoral dissertation! https://bit.ly/ERobinson_FullDiss | https://bit.ly/ERobinson_DefenseTalk
